@@ -1,5 +1,4 @@
 # About Me
-# ☕ TheTeeMan | Cybersecurity Learner | Teacher | Powered by Ataaya
 
 Hi there! I’m **Aslam**, also known online as **TheTeeMan** — a name inspired by my love for *Ataaya*, the strong green tea that's a lifeline for many in West Africa. It keeps me awake, sharp, and energized through late-night study sessions and early morning teaching prep.
 
